@@ -8,4 +8,4 @@ Itt tudja egyszerűen és gyorsan igényelni az **energetikai tanúsítványát.
 1. Kattintson az alábbi gombra
 2. Töltse ki az adatfelvételi űrlapot
 3. Mi felvesszük Önnel a kapcsolatot és elkészítjük a tanúsítványt
-[**Űrlap kitöltése itt**](https://IDE-ILLESZD-BE-A-GOOGLE-FORM-LINKET)
+[**Űrlap kitöltése itt**](https://forms.gle/KHzw8ygzvceyY1bS8)
