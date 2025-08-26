@@ -9,3 +9,6 @@ Itt tudja egyszerűen és gyorsan igényelni az **energetikai tanúsítványát.
 2. Töltse ki az adatfelvételi űrlapot
 3. Mi felvesszük Önnel a kapcsolatot és elkészítjük a tanúsítványt
 [**Űrlap kitöltése itt**](https://forms.gle/KHzw8ygzvceyY1bS8)
+
+
+**Email:kovagoenergetika@gmail.com**
