@@ -11,4 +11,4 @@ Itt tudja egyszerűen és gyorsan igényelni az **energetikai tanúsítványát.
 [**Űrlap kitöltése itt**](https://forms.gle/KHzw8ygzvceyY1bS8)
 
 
-**Email:kovagoenergetika@gmail.com**
+**Email:energetikakovago@gmail.com**
